@@ -5,6 +5,7 @@
 - 📫 My email is Ryan.jspencer63@gmail.com if you need to reach me for whatever reason.
 
 BIOGRAPHY
+
 I am 25, and live in Canada with my girlfriend in a two bedroom apartment with our two cats, Kira and Floki. I grew up in a small town, and moved to a city just
 after highschool. I have been working labor jobs since was 12, and had no direction for what I wanted to do as a career. Although I have recently started a job that
 could lead to a career within the company, it still doesn't feel right for me. It's one of those things where I would stick it out just because I have nothing else
